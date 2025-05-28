@@ -1,6 +1,6 @@
-Interpretation von dem Bahkauvbrunnen
+Der Bahkauvbrunnen
 
-Geschichte: Das Bahkauv und der Brunnen
+Das Bahkauv und der Brunnen
 Das Bahkauv ist eine Sagengestalt aus Aachen. Es soll einem großen Kalb mit scharfen Zähnen und schuppigem Fell ähneln und in dem Abwasserkanal der Thermalquellen am Büchel, dem so genannten Kolbert, hausen.
 
 Das Untier soll nachts betrunkene Männer erschreckt und aufgefordert haben, es auf ihren Schultern zu tragen, sodass die Männer es schwer hatten, nach Hause zu kommen. Flehten oder beteten die betrunkenen Männer, so wurde der Bahkauv schwerer und schwerer. Fluchten oder schimpften sie, dann wurde die Last leichter. Auf Frauen und Kinder, hatte das Bahkauv es nie abgesehen gehabt.
