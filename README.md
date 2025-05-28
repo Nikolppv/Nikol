@@ -1,4 +1,4 @@
-Interpretation von Nikol von dem Bahkauvbrunnen
+Interpretation von dem Bahkauvbrunnen
 
 Geschichte: Das Bahkauv und der Brunnen
 Das Bahkauv ist eine Sagengestalt aus Aachen. Es soll einem großen Kalb mit scharfen Zähnen und schuppigem Fell ähneln und in dem Abwasserkanal der Thermalquellen am Büchel, dem so genannten Kolbert, hausen.
